@@ -15,7 +15,13 @@ https://github.com/user-attachments/assets/8ad0cff4-3c1e-4a3b-ae75-c89de17ffced
 
 https://github.com/user-attachments/assets/db57855b-3b99-494c-ada8-651acbf03e37
 
-# simulations
+# simulations ALL IN ONE 
+
+
+
+https://github.com/user-attachments/assets/c6c69a63-2bf8-4462-9502-b7c6634f1c4b
+
+
 
 ## formation switching
 
